@@ -1,5 +1,6 @@
 
 <h1>knowledgewap.com</h1>
+<meta name="google-site-verification" content="Ry4izcMJco9Jz1djpaaivB90Jr_4a890MQw8-EHgZ4Q" />
 All articles on Knowledgewap.com are copyright protected, you are requested to refrain from stealing the content written on the site. If you do this, then legal icon-legal action can be taken against you.
 
 About Knowledgewap.com
