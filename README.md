@@ -1,4 +1,5 @@
 
+<h1>knowledgewap.com</h1>
 All articles on Knowledgewap.com are copyright protected, you are requested to refrain from stealing the content written on the site. If you do this, then legal icon-legal action can be taken against you.
 
 About Knowledgewap.com
